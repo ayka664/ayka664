@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ayka664
-- 👀 I’m interested in evetything, English, countries policy, teaching, writing books,mosel countries that destroyed,refuge,.
+- 👀 I’m interested in evetything, English, countries' policy, teaching, writing books, muslem countries that destroyed, refugees,.
 - 🌱 I’m currently learning C2 English..
 - 💞️ I’m looking to collaborate on teaching in US .
 - 📫 How to reach me ...
